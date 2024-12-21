@@ -1,0 +1,1 @@
+# artcenter-courses-main-image
